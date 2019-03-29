@@ -1,6 +1,4 @@
 # WONDROUS WORLD OF AUGZIDRAAL
-### A Reference Guide Compiled by Calloway Sutton
-
 ## About
 <p>
 	This is a reference guide of all the creatures and things that exist in the Universe of Augzidral (AWG ▪ zee ▪ Draal). Many of these creatures and even some of the objects of this Universe have been found in this Universe as well. For example, SCP-███-█ was discovered to be in this world. How it got there is still a mystery and many of the people who walked into it are still missing to this day. The big difference between this world and Augzidral is that there is no such thing as death. This may sound confusing, but first let me explain how the creatures of Augzidral exist. The living purely exists of Life-Force or the Aug and can use its powers to raise the defenses of other living, heal, or attack the Draal. On the other hand, the dead exist purely off the energy provided by the Draal. There is a third force called Natural Law otherwise known as Zi but not much is known about it. The only known information on the Zi is from the memories passed down from the Draal and Aug forces.
